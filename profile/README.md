@@ -1,4 +1,4 @@
-# 👥 + 🤖 + 🌐: The Grassroots Movement Eliminating Real Estate Fees 🏠💸
+# home0: The Grassroots Movement Eliminating Real Estate Fees 🏠💸
 
 ## Introduction ✊
 
